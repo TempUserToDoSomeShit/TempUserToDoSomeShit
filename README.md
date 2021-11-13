@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @TempUserToDoSomeShit
+- 👀 I’m interested in some shit
+- 🌱 I’m currently learning some shit
+- 💞️ I’m looking to collaborate on some shit
+- 📫 How to reach me: fuck you
